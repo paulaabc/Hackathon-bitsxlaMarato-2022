@@ -1,1 +1,1 @@
-# Hackathon-bitsxlaMarat-2022
+# Hackathon-bitsxlaMarató 2022
